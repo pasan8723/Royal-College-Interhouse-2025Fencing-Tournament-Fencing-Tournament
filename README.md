@@ -1,2 +1,2 @@
-# Royal-College-Interhouse-2025Fencing-Tournament-Fencing-Tournament
+# Royal-College-Interhouse-Fencing-Tournament 2025
 Royal College Fencing Interhouse 2025
